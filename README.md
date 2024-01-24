@@ -1,3 +1,4 @@
+![logo](https://raw.githubusercontent.com/PolarBearGG/PolarBearGG/master/web-developer.gif)
 <h1 align="center">Hi 👋, I'm Wei Lam</h1>
 <h3 align="left">A passionate programming learner from Malaysia</h3>
 
