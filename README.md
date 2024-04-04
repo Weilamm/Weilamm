@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **weilamchang@gmail.com**
 
--  **I think I'm funny girl**
+-  **ENTP**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
