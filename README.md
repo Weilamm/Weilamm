@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **weilamchang@gmail.com**
 
--  **ENTP**
+-  **ENFP**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
